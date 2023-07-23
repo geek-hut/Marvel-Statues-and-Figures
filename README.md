@@ -5,6 +5,8 @@ Discover the Ultimate Marvel Statues and Figures!
 
 Welcome to our comprehensive guide to the top Marvel statues and figures available this year. Whether you're a die-hard Marvel fan or searching for the perfect gift for someone who is, you've come to the right place. We've curated a collection of the best statues, busts, and action figures based on your favorite characters from both the Marvel comics and the Marvel Cinematic Universe (MCU).
 
+https://geekhut.space/top-marvel-statues-and-figures/
+
 For Marvel Comics Fans - Must-Have Collectible Statues 
 
 Marvel enthusiasts, this section is tailored for you! We've compiled a selection of essential collectible statues that cater to serious Marvel comics fans. From iconic characters like Iron Man to the legendary X-Men, you'll find an array of your favorite heroes and villains from the MCU and Marvel comics alike. Whether you're a devoted follower of the Avengers movies or a fan of the classic comic versions, we've listed the latest 2023 releases available for purchase or pre-order.
